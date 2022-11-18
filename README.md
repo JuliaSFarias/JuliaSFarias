@@ -12,7 +12,7 @@
 
 :hearts: Acredito e desejo trabalhar em ações que possam gerar um impacto positivo na vida das pessoas.
 
-:books: Gosto de passar o tempo estudando, ouvindo música, 
+:books: Gosto de passar o tempo com meus pets, estudando, ouvindo música, 
 vendo filmes e cantando (não gerem expectativas :sweat_smile:).
 
 :video_game: Meu jogo favorito é Super Mario World (clássico, né?).
