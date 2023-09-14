@@ -6,7 +6,7 @@
 
  
 
-:computer: Estudante de Desenvolvimento Web Full Stack - [Trybe](https://www.betrybe.com/).
+:computer: Desenvolvedora Web Full Stack - [Trybe](https://www.betrybe.com/).
 
 :house_with_garden: Nascida em Santos, SP, atualmente resido em Campina Grande, PB.
 
